@@ -3,6 +3,8 @@ Realizado por Eduarda Matias e Stefany Tam
 
 ![2022-06-14-16-32-32](https://user-images.githubusercontent.com/85466761/173674238-e00421e1-8e03-42aa-a5aa-75ad49158d65.gif)
 
+Link do vídeo: https://youtu.be/2yfVOfQhY2U
+
 
 # Objetivo
 
